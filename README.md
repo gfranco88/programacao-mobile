@@ -1,3 +1,3 @@
-Gustavo Osorio Franco \n
-desenvolvimento mobile \n
+Gustavo Osorio Franco
+desenvolvimento mobile 
 Tuiuti 2022/1 noite
