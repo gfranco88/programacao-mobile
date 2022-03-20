@@ -1,3 +1,3 @@
 Gustavo Osorio Franco
-desenvolvimento mobile
+desenvolvimento mobile 
 Tuiuti 2022/1 noite
